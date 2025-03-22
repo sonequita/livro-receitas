@@ -9,4 +9,4 @@ Ola! Bem vindo ao meu livro de receitas :clap:
 - Pudim
 - Cafézitos
 - Inovação está em nosso DNA!!!
-- Preciso de um empreguitos :c
+- Preciso de um empreguitos 
